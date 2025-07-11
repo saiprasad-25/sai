@@ -1,3 +1,0 @@
-kadapaSasSds
-den
-den
